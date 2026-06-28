@@ -1,1 +1,0 @@
-Application Karamoko PMU Pro
